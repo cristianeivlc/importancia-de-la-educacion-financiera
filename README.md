@@ -4,5 +4,6 @@ un fin superador
 de la propia existencia
 como forma de comunicarse
 con la conciencia
+del yo universal
 
 
