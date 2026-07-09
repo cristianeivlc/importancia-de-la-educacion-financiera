@@ -7,5 +7,5 @@ con la conciencia
 del yo universal
 donde confluyen todos
 los yo interior
-
+es decir la
 
