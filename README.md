@@ -15,5 +15,5 @@ el yo superior
 que da alivio
 al dejarte llevar
 a un fin superior
-
+lo que te quita
 
