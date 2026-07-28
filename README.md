@@ -25,3 +25,4 @@ que todo por algo
 bueno se dá
 que todo es un
 un aprendizaje
+y cada vez que
