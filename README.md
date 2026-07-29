@@ -26,3 +26,4 @@ bueno se dá
 que todo es un
 un aprendizaje
 y cada vez que
+algo te preocupa
