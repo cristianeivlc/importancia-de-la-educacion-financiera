@@ -27,3 +27,4 @@ que todo es un
 un aprendizaje
 y cada vez que
 algo te preocupa
+que sientes miedo
