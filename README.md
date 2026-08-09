@@ -38,3 +38,4 @@ que aprender de
 esta situación
 que me está
 enseñando la vida
+el universo es sabio
