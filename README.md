@@ -45,4 +45,6 @@ biológicamente esto
 está comprobado
 que si ante una
 misma adversidad
-una persona se
+una persona lo
+toma en forma negativa
+
