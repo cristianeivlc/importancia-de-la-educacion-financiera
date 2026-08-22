@@ -49,5 +49,7 @@ si una persona lo
 toma en forma negativa
 y otra en forma positiva
 la primera persona
-piensa que todo le
+piensa porque que todo 
+le pasa a él
+
 
