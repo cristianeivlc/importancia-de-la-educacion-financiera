@@ -52,5 +52,6 @@ la primera persona
 piensa porque que todo 
 le pasa a él
 porque nada le sale bien
+y su cuerpo lo muestra
 
 
