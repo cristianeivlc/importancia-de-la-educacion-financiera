@@ -55,5 +55,6 @@ porque nada le sale bien
 y su cuerpo lo muestra
 mostrando una fisonomia
 negativa y tensa
+lo que se traduce
 
 
