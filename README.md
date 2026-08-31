@@ -58,6 +58,7 @@ negativa y tensa
 lo que se traduce
 en una generación
 de sustancias que
-generan efectos negativos
+generan efectos 
+negativos y de rendición 
 
 
