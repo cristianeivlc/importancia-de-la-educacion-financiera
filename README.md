@@ -61,5 +61,6 @@ de sustancias que
 generan efectos 
 negativos y de rendición 
 la otra persona
+piensa que todo pasa
 
 
