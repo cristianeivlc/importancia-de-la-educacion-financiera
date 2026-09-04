@@ -64,5 +64,5 @@ la otra persona
 piensa que todo pasa
 que va aprender algo
 y entonces su cuerpo
-
+se predispone de 
 
