@@ -66,3 +66,4 @@ que va aprender algo
 y entonces su cuerpo
 se predispone de 
 una manera que 
+al posicionarse de
