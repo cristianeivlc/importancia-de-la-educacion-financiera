@@ -68,3 +68,4 @@ se predispone de
 una manera que 
 al posicionarse de
 manera erguida
+y en positiva
