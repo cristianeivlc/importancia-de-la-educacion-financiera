@@ -70,3 +70,4 @@ al posicionarse de
 manera erguida
 y en forma positiva
 el cuerpo genera
+un conjunto de
