@@ -75,5 +75,5 @@ sustancias quimicas
 conocidas como 
 el cuarteto de la felicidad
 estos neurotransmisores
-y hormonas
+y hormonas tienen como
 
