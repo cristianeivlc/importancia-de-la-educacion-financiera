@@ -75,7 +75,8 @@ sustancias quimicas
 conocidas como 
 el cuarteto de la felicidad
 estos neurotransmisores
-y hormonas producen
+y hormonas generan
 un estado mental
+que reduce la producción
 
 
