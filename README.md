@@ -78,5 +78,6 @@ estos neurotransmisores
 y hormonas generan
 un estado mental
 que reduce la producción
+de sustancias asociadas
 
 
