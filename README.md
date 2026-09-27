@@ -83,5 +83,5 @@ al estrés crónico
 las principales sustancias
 que genera el cuerpo son
 Dopamina: Es el neurotransmisores
-
+de la motivación, el placer y la recompensa. 
 
