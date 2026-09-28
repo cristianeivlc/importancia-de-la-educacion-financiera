@@ -85,3 +85,4 @@ que genera el cuerpo son
 Dopamina: Es el neurotransmisores
 de la motivación, el placer y la recompensa. 
 Se libera cuando te enfocas
+en alcanzar metas, celebras pequeños
