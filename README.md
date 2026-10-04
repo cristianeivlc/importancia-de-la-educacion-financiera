@@ -90,4 +90,5 @@ logros diarios o experimentas
 una ilusión genuina
 Serotonina: Estrechamente vinculada
 a la regulación del estado de ánimo,
- la autoestima y la autoconfianza.
+la autoestima y la autoconfianza.
+Tener un diálogo interno compasivo
