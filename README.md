@@ -93,3 +93,4 @@ a la regulación del estado de ánimo,
 la autoestima y la autoconfianza.
 Tener un diálogo interno compasivo
 y optimista ayuda a mantener 
+ niveles óptimos de serotonina,
