@@ -95,3 +95,4 @@ Tener un diálogo interno compasivo
 y optimista ayuda a mantener 
 niveles óptimos de serotonina,
 generando paz y estabilidad emocional.
+Endorfinas: Funcionan como los
