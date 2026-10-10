@@ -97,3 +97,4 @@ niveles óptimos de serotonina,
 generando paz y estabilidad emocional.
 Endorfinas: Funcionan como los
 analgésicos naturales del cuerpo.
+Cuando tienes pensamientos que
