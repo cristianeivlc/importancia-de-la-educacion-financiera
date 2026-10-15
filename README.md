@@ -100,3 +100,4 @@ analgésicos naturales del cuerpo.
 Cuando tienes pensamientos que
 que te generan risa, gratitud o alegría, 
 las endorfinas se liberan para mitigar el 
+dolor físico y promover una sensación
