@@ -104,4 +104,5 @@ dolor físico y promover una sensación
 de bienestar general.
 Oxitocina: Conocida como la "hormona de 
 los vínculos afectivos" o del amor.
- Se activa al pensar positivamente
+Se activa al pensar positivamente
+en las relaciones con los demás, 
