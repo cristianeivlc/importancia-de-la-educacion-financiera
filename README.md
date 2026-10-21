@@ -106,3 +106,4 @@ Oxitocina: Conocida como la "hormona de
 los vínculos afectivos" o del amor.
 Se activa al pensar positivamente
 en las relaciones con los demás, 
+practicar la empatía, la generosidad
