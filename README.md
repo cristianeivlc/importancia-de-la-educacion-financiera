@@ -110,3 +110,4 @@ practicar la empatía, la generosidad
 y el agradecimiento, reduciendo 
 significativamente los niveles de ansiedad.
 El efecto secundario más importante:
+la reducción del cortisol
