@@ -112,3 +112,4 @@ significativamente los niveles de ansiedad.
 El efecto secundario más importante:
 la reducción del cortisol
 Al enfocarte en lo positivo, disminuye la
+producción de cortisol (la hormona del estrés).
