@@ -114,3 +114,4 @@ la reducción del cortisol
 Al enfocarte en lo positivo, disminuye la
 producción de cortisol (la hormona del estrés).
 Menos cortisol en el organismo se traduce 
+de forma directa en un sistema inmunitario
