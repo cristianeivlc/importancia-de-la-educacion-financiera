@@ -116,3 +116,4 @@ producción de cortisol (la hormona del estrés).
 Menos cortisol en el organismo se traduce 
 de forma directa en un sistema inmunitario
 más fuerte, menor inflamación celular 
+y una mejor respuesta física 
