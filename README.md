@@ -119,3 +119,4 @@ más fuerte, menor inflamación celular
 y una mejor respuesta física 
 ante las enfermedades.
 ¿Te gustaría saber qué hábitos cotidianos
+o ejercicios mentales específicos podés
