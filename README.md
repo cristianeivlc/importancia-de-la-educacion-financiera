@@ -118,6 +118,7 @@ de forma directa en un sistema inmunitario
 más fuerte, menor inflamación celular 
 y una mejor respuesta física 
 ante las enfermedades.
-¿Te gustaría saber qué hábitos cotidianos
+Si te gustaría saber qué hábitos cotidianos
 o ejercicios mentales específicos podés
 sumar en tu día a día para estimular
+de forma natural la producción de
