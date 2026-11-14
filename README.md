@@ -127,3 +127,4 @@ aqui trataremos de ahondar en eso:
 Para estimular la producción de estas 
 sustancias de forma natural, podés
 incorporar pequeños hábitos diarios agrupados
+según el "químico" que quieras activar:
