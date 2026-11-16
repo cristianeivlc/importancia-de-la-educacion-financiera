@@ -129,3 +129,4 @@ sustancias de forma natural, podés
 incorporar pequeños hábitos diarios agrupados
 según el "químico" que quieras activar:
 Para activar la Dopamina (Motivación y Recompensa)
+Dividir grandes metas en tareas chicas: 
