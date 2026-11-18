@@ -131,3 +131,4 @@ según el "químico" que quieras activar:
 Para activar la Dopamina (Motivación y Recompensa)
 Dividir grandes metas en tareas chicas: 
 Celebrar cada pequeño avance en tu día
+(completar un informe, ordenar tu escritorio)
