@@ -132,3 +132,4 @@ Para activar la Dopamina (Motivación y Recompensa)
 Dividir grandes metas en tareas chicas: 
 Celebrar cada pequeño avance en tu día
 (completar un informe, ordenar tu escritorio)
+ le da un micro-impulso de dopamina a tu cerebro.
