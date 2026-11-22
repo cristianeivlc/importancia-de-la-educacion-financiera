@@ -134,3 +134,4 @@ Celebrar cada pequeño avance en tu día
 (completar un informe, ordenar tu escritorio) 
 le da un micro-impulso de dopamina a tu cerebro.
 Establecer recordatorios de logros:
+Al final del día, anotá tres cosas
