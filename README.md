@@ -137,3 +137,4 @@ Establecer recordatorios de logros:
 Al final del día, anotá tres cosas
 que hayas resuelto o hecho bien.
 Escuchar música que te apasione: 
+Especialmente la que te da escalofríos de
